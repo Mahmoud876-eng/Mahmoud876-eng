@@ -49,5 +49,5 @@ Built to say one simple thing: people living with Alzheimer's are meant for us, 
 ---
 
 ### 📫 Get in touch
-- LinkedIn: *add your profile link here*
-- Email: *add your email here*
+- LinkedIn: *linkedin.com/in/mahmoud-malek-b7b984300*
+- Email: *mahmoudmalek2004@gmail.com*
